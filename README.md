@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GabrielGamez2000
+- 👀 I’m interested in a lot of things
+- 🌱 I’m currently learning web development¿
